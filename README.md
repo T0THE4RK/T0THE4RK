@@ -43,7 +43,8 @@
 
 
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
-<img width="360" height="74" alt="Tumblr_l_508225060830263" src="https://github.com/user-attachments/assets/ca84636c-e6e6-4105-b135-ae3b50580f06" />
+<img width="2050" height="717" alt="IMG_20261028_062054" src="https://github.com/user-attachments/assets/b29b180e-2ebc-4a0c-94f9-cfc384237b88" />
+
 
 
 <!--
