@@ -1,5 +1,6 @@
 ⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒊𝒏𝒈..` ⦻
-<img width="150" height="20" alt="Tumblr_l_496985284958020" src="https://github.com/user-attachments/assets/d1ea9022-6b62-4d4a-881b-865b8b4ba063" />
+<img width="396" height="224" alt="Tumblr_l_495494257465018" src="https://github.com/user-attachments/assets/1c524d12-bde5-48d1-9659-266e16b55aa2" />
+
 
 𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ; I'm Alex! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed! 
 
@@ -28,6 +29,7 @@
 <img width="150" height="20" alt="Tumblr_l_498142396157843" src="https://github.com/user-attachments/assets/6ad0996d-8036-4570-84a2-271e8a1c669e" />
 <img width="150" height="20" alt="Tumblr_l_498143923833885" src="https://github.com/user-attachments/assets/ba1bacfe-e822-4afd-89ff-574ca77abdb9" />
 <img width="97" height="57" alt="Tumblr_l_498155787281799" src="https://github.com/user-attachments/assets/de159ea2-778b-4056-b058-1a6f67e9d646" />
+<img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/3bdebe34-8209-4c45-84fd-4c360a129f79" />
 
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
