@@ -1,3 +1,5 @@
+<img width="2048" height="757" alt="Tumblr_l_521726116507890" src="https://github.com/user-attachments/assets/4a0694b9-7145-4526-9264-a5b747f295a8" />
+
 <img width="374" height="68" alt="Tumblr_l_507769270907416" src="https://github.com/user-attachments/assets/b4634882-9bbc-47d1-aff2-4390416a3e5c" />
 
   ⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒍𝒊𝒈𝒉𝒕..` ⦻
