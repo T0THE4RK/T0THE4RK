@@ -40,6 +40,8 @@
 <img width="360" height="74" alt="Tumblr_l_508225060830263" src="https://github.com/user-attachments/assets/ca84636c-e6e6-4105-b135-ae3b50580f06" />
 
 
+<img width="2048" height="757" alt="Tumblr_l_521728874675077" src="https://github.com/user-attachments/assets/d7a1bc83-f50b-449c-8427-50d2e30476f2" />
+
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
