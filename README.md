@@ -11,7 +11,8 @@
 ; I'm bilingual English/Spanish and also severely into Slenderverse (MH heavy) 
 
 <img width="99" height="56" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f3833373363 55755a473933626d7876595751695858302e7a44574f72513873745943687935567562525859686e6b77615354517665506761746266772d656c4c3030" src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" />
-<img width="105" height="59" alt="Tumblr_l_495013181203633" src="https://github.com/user-attachments/assets/5f870f4e-bc0d-4576-85ce-b343be2da22d" />
+<img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/ad2e8999-a6c0-4468-9288-955b67d29eed" />
+
 <img width="99" height="56" alt="Tumblr_l_495389129013992" src="https://github.com/user-attachments/assets/3244092b-216e-4396-9266-8d228c3b0b32" />
 <img width="97" height="57" alt="Tumblr_l_495397161021283" src="https://github.com/user-attachments/assets/7b512938-e892-48b2-9fdd-2688b038c2cb" />
 <img width="99" height="56" alt="Tumblr_l_495409067609302" src="https://github.com/user-attachments/assets/84953317-eb77-4d07-ab72-67f2162b6ef6" />
@@ -29,6 +30,8 @@
 <img width="150" height="20" alt="Tumblr_l_498135195783886" src="https://github.com/user-attachments/assets/b1135d69-8eda-4217-b37e-84c49233c3c8" />
 <img width="150" height="20" alt="Tumblr_l_498138971833885" src="https://github.com/user-attachments/assets/5a8c3ab0-485b-42b0-9599-9ce1cfcb50c0" />
 <img width="150" height="20" alt="Tumblr_l_498140829956802" src="https://github.com/user-attachments/assets/6a74edd3-f7f2-4a08-87cc-48105ebe4fa6" />
+<img width="150" height="20" alt="Tumblr_l_498142396157843" src="https://github.com/user-attachments/assets/0b77e50d-d26e-4303-9f06-c6291c6a15e7" />
+<img width="150" height="20" alt="Tumblr_l_498143923833885" src="https://github.com/user-attachments/assets/7973273b-d21f-47fc-baab-e344611c6807" />
 
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
