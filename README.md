@@ -1,4 +1,10 @@
-## Hi there 👋
+⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒊𝒏𝒈..` ⦻
+
+𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ; I'm Alex! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed! 
+
+; I'm bilingual English/Spanish and also severely into Slenderverse (MH heavy) 
+
+ 
 
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
