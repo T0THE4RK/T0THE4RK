@@ -22,7 +22,8 @@
 <img width="98" height="56" alt="Tumblr_l_495415549170759" src="https://github.com/user-attachments/assets/df4d07f3-2b8c-440a-a4b6-d0bea4f8bba9" />
 <img width="98" height="56" alt="Tumblr_l_495417884081176" src="https://github.com/user-attachments/assets/ddddde87-c501-40e7-9fc7-c40a1a02aec2" />
 
- <img width="300" height="40" alt="Tumblr_l_498077604735457" src="https://github.com/user-attachments/assets/a0275336-3890-487d-903d-004ee3ccc178" />
+ <img width="240" height="32" alt="Tumblr_l_499152915511856" src="https://github.com/user-attachments/assets/c70cf25d-a11b-4d3c-ba69-b79a06360627" />
+
  
 
 
