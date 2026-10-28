@@ -37,7 +37,7 @@ $\color{#ff0000}\textsf{𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ;}$ I'm Alex/Ark! Usu
 
 !! 𝐓𝐨𝐭𝐡𝐞𝐚𝐫𝐤 𝐞𝐧𝐭𝐡𝐮𝐬𝐢𝐚𝐬𝐭! 𝐂𝐡𝐞𝐜𝐤 𝐦𝐲 𝐂𝐚𝐫𝐫𝐝 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐢𝐧𝐟𝐨 / 𝐃𝐍𝐈'𝐬 ✘
 
- *; PLEASE DNI if you're a minor.. I'm a grown man* 
+ $\color{#ff0000}\textsf{*; PLEASE DNI if you're a minor.. I'm a grown man* }$
 
  <img width="384" height="68" alt="Tumblr_l_507767477804812" src="https://github.com/user-attachments/assets/b8370826-37a3-4faf-b6b7-ad851be4c3b6" />
 
