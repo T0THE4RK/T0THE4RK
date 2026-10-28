@@ -27,6 +27,7 @@
 
 
 !! 𝐓𝐨𝐭𝐡𝐞𝐚𝐫𝐤 𝐞𝐧𝐭𝐡𝐮𝐬𝐢𝐚𝐬𝐭! 𝐂𝐡𝐞𝐜𝐤 𝐦𝐲 𝐂𝐚𝐫𝐫𝐝 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐢𝐧𝐟𝐨 / 𝐃𝐍𝐈'𝐬 ✘
+
  ; PLEASE DNI if you're a minor.. I'm a grown man 
 
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
