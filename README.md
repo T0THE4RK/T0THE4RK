@@ -38,7 +38,8 @@
 
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
 “𝑌𝑜𝑢'𝑣𝑒 𝑑𝑜𝑛𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔 𝑏𝑢𝑡 𝑚𝑎𝑘𝑒 𝑒𝑣𝑒𝑟𝑦𝑡ℎ𝑖𝑛𝑔 𝑤𝑜𝑟𝑠𝑒”
-<img width="150" height="20" alt="Tumblr_l_507719347093361" src="https://github.com/user-attachments/assets/99652dbe-8d63-49d5-9a39-08bde0a1ce8c" />
+<img width="150" height="20" alt="Tumblr_l_507719347093361" src="https://github.com/user-attachments/assets/99652dbe-8d63-49d5-9a39-08bde0a1ce8c" /> <img width="150" height="20" alt="Tumblr_l_507583899773069" src="https://github.com/user-attachments/assets/2561c5ff-5a1b-47cd-bd85-720c83ddc939" />
+
 
 
 <!--
