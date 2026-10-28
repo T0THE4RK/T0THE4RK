@@ -11,7 +11,7 @@
 ; I'm bilingual English/Spanish and also severely into Slenderverse (MH heavy) 
 
 <img width="99" height="56" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f3833373363 55755a473933626d7876595751695858302e7a44574f72513873745943687935567562525859686e6b77615354517665506761746266772d656c4c3030" src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" />
-<img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/ad2e8999-a6c0-4468-9288-955b67d29eed" />
+<img width="100" height="56" alt="Tumblr_l_499041553953539" src="https://github.com/user-attachments/assets/f2de4364-668c-42e8-bc4a-30310947300b" />
 
 <img width="99" height="56" alt="Tumblr_l_495389129013992" src="https://github.com/user-attachments/assets/3244092b-216e-4396-9266-8d228c3b0b32" />
 <img width="97" height="57" alt="Tumblr_l_495397161021283" src="https://github.com/user-attachments/assets/7b512938-e892-48b2-9fdd-2688b038c2cb" />
