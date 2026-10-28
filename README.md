@@ -1,6 +1,6 @@
 <img width="374" height="68" alt="Tumblr_l_507769270907416" src="https://github.com/user-attachments/assets/b4634882-9bbc-47d1-aff2-4390416a3e5c" />
 
-⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒍𝒊𝒈𝒉𝒕..` ⦻
+  ⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒍𝒊𝒈𝒉𝒕..` ⦻
 
 <img width="396" height="224" alt="Tumblr_l_495494257465018" src="https://github.com/user-attachments/assets/1c524d12-bde5-48d1-9659-266e16b55aa2" />
 <img width="480" height="45" alt="Tumblr_l_499237774449343" src="https://github.com/user-attachments/assets/91247165-69f4-4722-a188-969776315055" />
@@ -38,6 +38,8 @@
 
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
 “𝑌𝑜𝑢'𝑣𝑒 𝑑𝑜𝑛𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔 𝑏𝑢𝑡 𝑚𝑎𝑘𝑒 𝑒𝑣𝑒𝑟𝑦𝑡ℎ𝑖𝑛𝑔 𝑤𝑜𝑟𝑠𝑒”
+<img width="150" height="20" alt="Tumblr_l_507655251623058" src="https://github.com/user-attachments/assets/fa647514-d18a-4fba-a1ff-00f755198a5b" />
+
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
