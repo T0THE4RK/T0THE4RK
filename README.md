@@ -4,7 +4,8 @@
   ⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒍𝒊𝒈𝒉𝒕..` ⦻
 
 <img width="396" height="224" alt="Tumblr_l_495494257465018" src="https://github.com/user-attachments/assets/1c524d12-bde5-48d1-9659-266e16b55aa2" />
-<img width="2048" height="82" alt="Tumblr_l_520500722715369" src="https://github.com/user-attachments/assets/d0572f4c-c1f2-416b-8487-b17f36925641" />
+<img width="2048" height="171" alt="Tumblr_l_520507543657035" src="https://github.com/user-attachments/assets/09a372a5-2f20-47e5-ae68-e27cfc35466f" />
+
 
 
 
