@@ -1,4 +1,5 @@
 ⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒊𝒏𝒈..` ⦻
+
 <img width="396" height="224" alt="Tumblr_l_495494257465018" src="https://github.com/user-attachments/assets/1c524d12-bde5-48d1-9659-266e16b55aa2" />
 
 
@@ -8,7 +9,6 @@
 
 <img width="99" height="56" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f3833373363 55755a473933626d7876595751695858302e7a44574f72513873745943687935567562525859686e6b77615354517665506761746266772d656c4c3030" src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" />
 <img width="105" height="59" alt="Tumblr_l_495013181203633" src="https://github.com/user-attachments/assets/5f870f4e-bc0d-4576-85ce-b343be2da22d" />
-<img width="105" height="59" alt="Tumblr_l_495015152455716" src="https://github.com/user-attachments/assets/dfe137c1-d1d6-4414-8f06-2733939f78f7" />
 <img width="99" height="56" alt="Tumblr_l_495389129013992" src="https://github.com/user-attachments/assets/3244092b-216e-4396-9266-8d228c3b0b32" />
 <img width="97" height="57" alt="Tumblr_l_495397161021283" src="https://github.com/user-attachments/assets/7b512938-e892-48b2-9fdd-2688b038c2cb" />
 <img width="99" height="56" alt="Tumblr_l_495409067609302" src="https://github.com/user-attachments/assets/84953317-eb77-4d07-ab72-67f2162b6ef6" />
