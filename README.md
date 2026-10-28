@@ -15,7 +15,8 @@
 <img width="100" height="56" alt="Tumblr_l_499041553953539" src="https://github.com/user-attachments/assets/f2de4364-668c-42e8-bc4a-30310947300b" />
 
 <img width="99" height="56" alt="Tumblr_l_495389129013992" src="https://github.com/user-attachments/assets/3244092b-216e-4396-9266-8d228c3b0b32" />
-<img width="97" height="57" alt="Tumblr_l_495397161021283" src="https://github.com/user-attachments/assets/7b512938-e892-48b2-9fdd-2688b038c2cb" />
+<img width="99" height="56" alt="Tumblr_l_498119833183888" src="https://github.com/user-attachments/assets/6bbf61cc-911f-462e-bdf4-15c847eb6778" />
+
 <img width="99" height="56" alt="Tumblr_l_495409067609302" src="https://github.com/user-attachments/assets/84953317-eb77-4d07-ab72-67f2162b6ef6" />
 <img width="99" height="56" alt="Tumblr_l_495410780777531" src="https://github.com/user-attachments/assets/a926aabf-4a44-421f-b87e-323e5987827e" />
 <img width="98" height="56" alt="Tumblr_l_495415549170759" src="https://github.com/user-attachments/assets/df4d07f3-2b8c-440a-a4b6-d0bea4f8bba9" />
@@ -24,7 +25,6 @@
  <img width="300" height="40" alt="Tumblr_l_498077604735457" src="https://github.com/user-attachments/assets/a0275336-3890-487d-903d-004ee3ccc178" />
  
 
-<img width="736" height="736" alt="Tumblr_l_499496675273261" src="https://github.com/user-attachments/assets/d11d35ce-e8cc-48a9-a279-3a5b99de1d5c" />
 
 “ 𝐘𝐨𝐮'𝐯𝐞 𝐝𝐨𝐧𝐞 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐦𝐚𝐤𝐞 𝐞𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠 𝐰𝐨𝐫𝐬𝐞 ”
 
