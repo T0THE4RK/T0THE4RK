@@ -5,6 +5,9 @@
 
 𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ; I'm Alex! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed! 
 
+<img width="97" height="57" alt="Tumblr_l_498500126976539" src="https://github.com/user-attachments/assets/96a6694f-6f4c-4e1e-bef6-dbf42734a495" />
+<img width="99" height="56" alt="Tumblr_l_498501939291122" src="https://github.com/user-attachments/assets/68523c0c-2eb3-4f14-baed-8c29974efb63" />
+
 ; I'm bilingual English/Spanish and also severely into Slenderverse (MH heavy) 
 
 <img width="99" height="56" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f3833373363 55755a473933626d7876595751695858302e7a44574f72513873745943687935567562525859686e6b77615354517665506761746266772d656c4c3030" src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" />
@@ -27,7 +30,6 @@
 <img width="150" height="20" alt="Tumblr_l_498138971833885" src="https://github.com/user-attachments/assets/5a8c3ab0-485b-42b0-9599-9ce1cfcb50c0" />
 <img width="150" height="20" alt="Tumblr_l_498140829956802" src="https://github.com/user-attachments/assets/6a74edd3-f7f2-4a08-87cc-48105ebe4fa6" />
 <img width="150" height="20" alt="Tumblr_l_498142396157843" src="https://github.com/user-attachments/assets/6ad0996d-8036-4570-84a2-271e8a1c669e" />
-<img width="150" height="20" alt="Tumblr_l_498143923833885" src="https://github.com/user-attachments/assets/ba1bacfe-e822-4afd-89ff-574ca77abdb9" />
 <img width="97" height="57" alt="Tumblr_l_498155787281799" src="https://github.com/user-attachments/assets/de159ea2-778b-4056-b058-1a6f67e9d646" />
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/3bdebe34-8209-4c45-84fd-4c360a129f79" />
 
