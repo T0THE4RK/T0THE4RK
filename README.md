@@ -1,5 +1,5 @@
 ⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒊𝒏𝒈..` ⦻
-![marblehornets] (https://64.media.tumblr.com/30476ca236c6bd6f8cf084ba922ed947/00dd8e5bcfd02afd-02/s250x400/c6fca0269a4c8babb6edbd37192dba1b0cea7ac2.gifv)
+
 𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ; I'm Alex! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed! 
 
 ; I'm bilingual English/Spanish and also severely into Slenderverse (MH heavy) 
