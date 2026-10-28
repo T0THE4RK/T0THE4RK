@@ -4,7 +4,7 @@
 <img width="480" height="45" alt="Tumblr_l_499237774449343" src="https://github.com/user-attachments/assets/91247165-69f4-4722-a188-969776315055" />
 
 
-𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ; I'm Alex! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed! 
+𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ; I'm Alex/Ark! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed! 
 
 <img width="97" height="57" alt="Tumblr_l_498500126976539" src="https://github.com/user-attachments/assets/96a6694f-6f4c-4e1e-bef6-dbf42734a495" />
 <img width="99" height="56" alt="Tumblr_l_498501939291122" src="https://github.com/user-attachments/assets/68523c0c-2eb3-4f14-baed-8c29974efb63" />
