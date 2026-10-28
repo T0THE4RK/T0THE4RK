@@ -38,7 +38,12 @@
 
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
 “𝑌𝑜𝑢'𝑣𝑒 𝑑𝑜𝑛𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔 𝑏𝑢𝑡 𝑚𝑎𝑘𝑒 𝑒𝑣𝑒𝑟𝑦𝑡ℎ𝑖𝑛𝑔 𝑤𝑜𝑟𝑠𝑒”
-<img width="150" height="20" alt="Tumblr_l_507734969931900" src="https://github.com/user-attachments/assets/faf82f08-d28e-4e2d-9d0c-2f189be5ece4" />
+
+<img width="300" height="40" alt="Tumblr_l_507633156037124" src="https://github.com/user-attachments/assets/dc681c33-6e3e-49f6-97a8-28928472fa54" />
+<img width="300" height="40" alt="Tumblr_l_507636498988686" src="https://github.com/user-attachments/assets/64a09b52-a54b-424b-a135-2c8c127e51df" />
+<img width="300" height="40" alt="Tumblr_l_507638002256915" src="https://github.com/user-attachments/assets/e2bf07a0-fa19-4097-8163-53a0b702a789" />
+<img width="300" height="40" alt="Tumblr_l_507639691427227" src="https://github.com/user-attachments/assets/ee141032-0c55-455a-8917-757e62ceb3db" />
+
 
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
