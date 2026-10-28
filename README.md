@@ -22,17 +22,11 @@
 <img width="98" height="56" alt="Tumblr_l_495417884081176" src="https://github.com/user-attachments/assets/ddddde87-c501-40e7-9fc7-c40a1a02aec2" />
 
  <img width="300" height="40" alt="Tumblr_l_498077604735457" src="https://github.com/user-attachments/assets/a0275336-3890-487d-903d-004ee3ccc178" />
+ 
 
-<img width="105" height="59" alt="Tumblr_l_495013181203633" src="https://github.com/user-attachments/assets/bbf1ce91-96df-43d8-b8f4-b5d3d67bf4b2" />
-<img width="99" height="56" alt="Tumblr_l_498119833183888" src="https://github.com/user-attachments/assets/fb3acae8-47fa-464b-901a-df5b3dbbffb6" />
-<img width="150" height="20" alt="Tumblr_l_498128574870345" src="https://github.com/user-attachments/assets/d20a7ea3-7aba-4e8e-9f03-22baf1d78b10" />
-<img width="150" height="20" alt="Tumblr_l_498130214426074" src="https://github.com/user-attachments/assets/b4500fbc-3c11-4f06-ab85-338a50b821c6" />
-<img width="150" height="20" alt="Tumblr_l_498132949245865" src="https://github.com/user-attachments/assets/1d38d625-6f37-4322-93ef-6d889af21b65" />
-<img width="150" height="20" alt="Tumblr_l_498135195783886" src="https://github.com/user-attachments/assets/b1135d69-8eda-4217-b37e-84c49233c3c8" />
-<img width="150" height="20" alt="Tumblr_l_498138971833885" src="https://github.com/user-attachments/assets/5a8c3ab0-485b-42b0-9599-9ce1cfcb50c0" />
-<img width="150" height="20" alt="Tumblr_l_498140829956802" src="https://github.com/user-attachments/assets/6a74edd3-f7f2-4a08-87cc-48105ebe4fa6" />
-<img width="150" height="20" alt="Tumblr_l_498142396157843" src="https://github.com/user-attachments/assets/0b77e50d-d26e-4303-9f06-c6291c6a15e7" />
-<img width="150" height="20" alt="Tumblr_l_498143923833885" src="https://github.com/user-attachments/assets/7973273b-d21f-47fc-baab-e344611c6807" />
+<img width="736" height="736" alt="Tumblr_l_499496675273261" src="https://github.com/user-attachments/assets/d11d35ce-e8cc-48a9-a279-3a5b99de1d5c" />
+
+“ 𝐘𝐨𝐮'𝐯𝐞 𝐝𝐨𝐧𝐞 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐦𝐚𝐤𝐞 𝐞𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠 𝐰𝐨𝐫𝐬𝐞 ”
 
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
 
