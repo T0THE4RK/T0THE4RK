@@ -31,6 +31,9 @@
 
  ; PLEASE DNI if you're a minor.. I'm a grown man 
 
+ <img width="384" height="68" alt="Tumblr_l_507767477804812" src="https://github.com/user-attachments/assets/b8370826-37a3-4faf-b6b7-ad851be4c3b6" />
+
+
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
 “𝑌𝑜𝑢'𝑣𝑒 𝑑𝑜𝑛𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔 𝑏𝑢𝑡 𝑚𝑎𝑘𝑒 𝑒𝑣𝑒𝑟𝑦𝑡ℎ𝑖𝑛𝑔 𝑤𝑜𝑟𝑠𝑒”
 <!--
