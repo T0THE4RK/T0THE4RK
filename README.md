@@ -11,7 +11,7 @@
 
 
 
-$\color{#FF0000}{𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ;}$ I'm Alex/Ark! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed/AFK! 
+$\color{#FF0000}{𝑺𝒐𝒎𝒆  𝒊𝒏𝒇𝒐! ;}$ I'm Alex/Ark! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed/AFK! 
 
 <img width="97" height="57" alt="Tumblr_l_498500126976539" src="https://github.com/user-attachments/assets/96a6694f-6f4c-4e1e-bef6-dbf42734a495" />
 <img width="99" height="56" alt="Tumblr_l_498501939291122" src="https://github.com/user-attachments/assets/68523c0c-2eb3-4f14-baed-8c29974efb63" />
