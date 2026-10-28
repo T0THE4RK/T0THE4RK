@@ -26,10 +26,10 @@
  
 
 
-“ 𝐘𝐨𝐮'𝐯𝐞 𝐝𝐨𝐧𝐞 𝐧𝐨𝐭𝐡𝐢𝐧𝐠 𝐛𝐮𝐭 𝐦𝐚𝐤𝐞 𝐞𝐯𝐞𝐫𝐲𝐭𝐡𝐢𝐧𝐠 𝐰𝐨𝐫𝐬𝐞 ”
+!! 𝐓𝐨𝐭𝐡𝐞𝐚𝐫𝐤 𝐞𝐧𝐭𝐡𝐮𝐬𝐢𝐚𝐬𝐭! 𝐂𝐡𝐞𝐜𝐤 𝐦𝐲 𝐂𝐚𝐫𝐫𝐝 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐢𝐧𝐟𝐨 ✘
 
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
-
+“𝑌𝑜𝑢'𝑣𝑒 𝑑𝑜𝑛𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔 𝑏𝑢𝑡 𝑚𝑎𝑘𝑒 𝑒𝑣𝑒𝑟𝑦𝑡ℎ𝑖𝑛𝑔 𝑤𝑜𝑟𝑠𝑒”
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
