@@ -31,7 +31,8 @@
 
  <img width="240" height="32" alt="Tumblr_l_499152915511856" src="https://github.com/user-attachments/assets/c70cf25d-a11b-4d3c-ba69-b79a06360627" />
 
- 
+
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=21czya3fgedr2nxwthign5mwi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 !! 𝐓𝐨𝐭𝐡𝐞𝐚𝐫𝐤 𝐞𝐧𝐭𝐡𝐮𝐬𝐢𝐚𝐬𝐭! 𝐂𝐡𝐞𝐜𝐤 𝐦𝐲 𝐂𝐚𝐫𝐫𝐝 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐢𝐧𝐟𝐨 / 𝐃𝐍𝐈'𝐬 ✘
@@ -45,7 +46,6 @@
 <img width="360" height="74" alt="Tumblr_l_508225060830263" src="https://github.com/user-attachments/assets/ca84636c-e6e6-4105-b135-ae3b50580f06" />
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=21czya3fgedr2nxwthign5mwi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
