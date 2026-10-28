@@ -39,9 +39,6 @@
 <img width="396" height="224" alt="Tumblr_l_498090639899518" src="https://github.com/user-attachments/assets/0b7407a1-f9df-4765-871b-27be220cfcf8" />
 <img width="360" height="74" alt="Tumblr_l_508225060830263" src="https://github.com/user-attachments/assets/ca84636c-e6e6-4105-b135-ae3b50580f06" />
 
-Jay is Gay 
-<img width="199" height="113" alt="Tumblr_l_501010791521468" src="https://github.com/user-attachments/assets/f4f96582-411e-4398-bb07-5917d7e59ca5" />
-
 
 <!--
 **T0THE4RK/T0THE4RK** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
