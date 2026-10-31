@@ -16,7 +16,7 @@ $\color{#ff0000}\textsf{𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ;}$ I'm Alex/Ark! Usu
 <img width="97" height="57" alt="Tumblr_l_498500126976539" src="https://github.com/user-attachments/assets/96a6694f-6f4c-4e1e-bef6-dbf42734a495" />
 <img width="99" height="56" alt="Tumblr_l_498501939291122" src="https://github.com/user-attachments/assets/68523c0c-2eb3-4f14-baed-8c29974efb63" />
 
-; I'm bilingual English/Spanish and also severely into Slenderverse (MH heavy) `we ♡ Polyhornets in this house`
+; I'm bilingual English/Spanish and also severely into Slenderverse (MH heavy) Multishipper! `we ♡ Polyhornets in this house`
 
 <img width="99" height="56" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f3833373363 55755a473933626d7876595751695858302e7a44574f72513873745943687935567562525859686e6b77615354517665506761746266772d656c4c3030" src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" />
 <img width="100" height="56" alt="Tumblr_l_499041553953539" src="https://github.com/user-attachments/assets/f2de4364-668c-42e8-bc4a-30310947300b" />
