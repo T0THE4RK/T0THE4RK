@@ -34,6 +34,8 @@ $\color{#ff0000}\textsf{𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ;}$ I'm Alex/Ark! Usu
 
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=21czya3fgedr2nxwthign5mwi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+<img width="400" height="225" alt="YouCut_20261103_061511253-ezgif com-overlay" src="https://github.com/user-attachments/assets/07c73621-d020-4358-b0ce-0923ccad67f2" />
+
 
 !! 𝐓𝐨𝐭𝐡𝐞𝐚𝐫𝐤 𝐞𝐧𝐭𝐡𝐮𝐬𝐢𝐚𝐬𝐭! 𝐂𝐡𝐞𝐜𝐤 𝐦𝐲 𝐂𝐚𝐫𝐫𝐝 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐢𝐧𝐟𝐨 / 𝐃𝐍𝐈'𝐬 ✘
 
