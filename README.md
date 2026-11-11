@@ -29,18 +29,25 @@
   <img src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" alt="First demo" />
   <img src="https://github.com/user-attachments/assets/f2de4364-668c-42e8-bc4a-30310947300b" alt="Second demo" />
 </p>
-<img width="99" height="56" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f3833373363 55755a473933626d7876595751695858302e7a44574f72513873745943687935567562525859686e6b77615354517665506761746266772d656c4c3030" src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" />
-<img width="100" height="56" alt="Tumblr_l_499041553953539" src="https://github.com/user-attachments/assets/f2de4364-668c-42e8-bc4a-30310947300b" />
 
-<img width="99" height="56" alt="Tumblr_l_495389129013992" src="https://github.com/user-attachments/assets/3244092b-216e-4396-9266-8d228c3b0b32" />
-<img width="99" height="56" alt="Tumblr_l_498119833183888" src="https://github.com/user-attachments/assets/6bbf61cc-911f-462e-bdf4-15c847eb6778" />
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/3244092b-216e-4396-9266-8d228c3b0b32" alt="First demo" />
+  <img src="https://github.com/user-attachments/assets/6bbf61cc-911f-462e-bdf4-15c847eb6778" alt="Second demo" />
+</p>
 
-<img width="99" height="56" alt="Tumblr_l_495409067609302" src="https://github.com/user-attachments/assets/84953317-eb77-4d07-ab72-67f2162b6ef6" />
-<img width="99" height="56" alt="Tumblr_l_495410780777531" src="https://github.com/user-attachments/assets/a926aabf-4a44-421f-b87e-323e5987827e" />
-<img width="98" height="56" alt="Tumblr_l_495415549170759" src="https://github.com/user-attachments/assets/df4d07f3-2b8c-440a-a4b6-d0bea4f8bba9" />
-<img width="98" height="56" alt="Tumblr_l_495417884081176" src="https://github.com/user-attachments/assets/ddddde87-c501-40e7-9fc7-c40a1a02aec2" />
 
- <img width="240" height="32" alt="Tumblr_l_499152915511856" src="https://github.com/user-attachments/assets/c70cf25d-a11b-4d3c-ba69-b79a06360627" />
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/84953317-eb77-4d07-ab72-67f2162b6ef6" alt="First demo" />
+  <img src="https://github.com/user-attachments/assets/a926aabf-4a44-421f-b87e-323e5987827e" alt="Second demo" />
+</p>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/df4d07f3-2b8c-440a-a4b6-d0bea4f8bba9" alt="First demo" />
+  <img src="https://github.com/user-attachments/assets/ddddde87-c501-40e7-9fc7-c40a1a02aec2" alt="Second demo" />
+</p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/c70cf25d-a11b-4d3c-ba69-b79a06360627" alt="Demo GIF" />
+</p>
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=21czya3fgedr2nxwthign5mwi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
