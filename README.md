@@ -29,13 +29,10 @@
   <img src="https://github.com/user-attachments/assets/885445c8-cc35-4aea-9200-63941d123ad1" alt="First demo" />
   <img src="https://github.com/user-attachments/assets/f2de4364-668c-42e8-bc4a-30310947300b" alt="Second demo" />
 </p>
-
 <p align="center">
   <img src="https://github.com/user-attachments/assets/3244092b-216e-4396-9266-8d228c3b0b32" alt="First demo" />
   <img src="https://github.com/user-attachments/assets/6bbf61cc-911f-462e-bdf4-15c847eb6778" alt="Second demo" />
 </p>
-
-
 <p align="center">
   <img src="https://github.com/user-attachments/assets/84953317-eb77-4d07-ab72-67f2162b6ef6" alt="First demo" />
   <img src="https://github.com/user-attachments/assets/a926aabf-4a44-421f-b87e-323e5987827e" alt="Second demo" />
@@ -44,7 +41,6 @@
   <img src="https://github.com/user-attachments/assets/df4d07f3-2b8c-440a-a4b6-d0bea4f8bba9" alt="First demo" />
   <img src="https://github.com/user-attachments/assets/ddddde87-c501-40e7-9fc7-c40a1a02aec2" alt="Second demo" />
 </p>
-
 <p align="center">
   <img src="https://github.com/user-attachments/assets/c70cf25d-a11b-4d3c-ba69-b79a06360627" alt="Demo GIF" />
 </p>
