@@ -16,7 +16,7 @@
 
 
 <p align="center">
-  <img src="[path/to/your/image.png](https://github.com/user-attachments/assets/96a6694f-6f4c-4e1e-bef6-dbf42734a495)" alt="Tumblr_l_498500126976539" width="99" height="56" />
+  <img src="(https://github.com/user-attachments/assets/96a6694f-6f4c-4e1e-bef6-dbf42734a495)" alt="Tumblr_l_498500126976539" width="99" height="56" />
 </p>
 
 <img width="97" height="57" alt="Tumblr_l_498500126976539" src="https://github.com/user-attachments/assets/96a6694f-6f4c-4e1e-bef6-dbf42734a495" />
