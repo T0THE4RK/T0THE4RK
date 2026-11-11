@@ -3,7 +3,6 @@
 
 <p align="center">⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒍𝒊𝒈𝒉𝒕..` ⦻
 </p>
-  ⦻ `𝑯𝒆𝒚 𝑱𝒂𝒚. 𝒚𝒐𝒖 𝒇𝒐𝒓𝒈𝒐𝒕 𝒚𝒐𝒖𝒓 𝒇𝒍𝒂𝒔𝒉𝒍𝒊𝒈𝒉𝒕..` ⦻
 
 <img width="396" height="224" alt="Tumblr_l_495494257465018" src="https://github.com/user-attachments/assets/1c524d12-bde5-48d1-9659-266e16b55aa2" />
 <img width="2048" height="171" alt="Tumblr_l_520507543657035" src="https://github.com/user-attachments/assets/09a372a5-2f20-47e5-ae68-e27cfc35466f" />
@@ -12,6 +11,8 @@
 
 
 
+
+<p align="center">$\color{#ff0000}\textsf{𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ;}$ I'm Alex/Ark! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed/AFK!</p>
 
 $\color{#ff0000}\textsf{𝑺𝒐𝒎𝒆 𝒊𝒏𝒇𝒐! ;}$ I'm Alex/Ark! Usually social as long as you're being respectful, I'm nice I swear lol, Whisper if needed/AFK! 
 
